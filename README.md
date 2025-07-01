@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Janani031
 - 👀I’m interested in Technical and non Technical  field in software. 
-- 🌱 I’m currently learning my Bachelor Degree in Chennai.
+- 🌱 I’m graduated Bachelor Degree in Chennai.
 - 💞️ I’m looking to collaborate on a MNC and mostly looking for Foreign country
 - How to reach me mail jananidhana31@gmail.com
 <!---
